@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on building something powerful.
 - 📫 Reach me through Twitter/Instagram.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: My Facebook Accounts banned with Registeration Process reason only GOD know, not even Mark.
+- ⚡ Fun fact: My Facebook Accounts banned with Registeration Process reason only GOD knows, not even Mark.
 
 <!---
 Divyansh2047/Divyansh2047 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
